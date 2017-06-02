@@ -1,0 +1,1 @@
+FEEDBACK para las operaciones de comparacion porfavor.
